@@ -10,5 +10,5 @@
 
 Then, take a microwave-safe bowl and pour the mixture on it. Microwave on high for 4-5 minutes or till a knife inserted in the middle of the cake, comes out clean. Gradually increase the baking time until the cake bakes perfectly.
 
-###### ***Step3*Decorate&Serve**
+###### ***Step3Decorate&Serve**
 You can decorate the cake, add some nuts, icing etc...And Serve!
